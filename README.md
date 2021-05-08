@@ -1,0 +1,2 @@
+Special occasion chocolates- special occasions like anniversaries, Valentine's day are something which get us the most troubled when it comes to gifts. Chocolates are the safest and smartest choice for such occasions
+Archaeologists have discovered the earliest traces of cacao in pottery used by the ancient Mayo-Chinchipe culture 5,300 years ago in the upper Amazon region of Ecuador.
